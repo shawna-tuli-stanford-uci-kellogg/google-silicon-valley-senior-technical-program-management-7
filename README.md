@@ -16,6 +16,8 @@
 
 ∙ [Shawna Tuli 2022 Stanford University Certificate in Machine Learning](https://www.coursera.org/account/accomplishments/verify/47XPJRBC4F5C)
 
+∙ [Shawna Tuli 2020 University of California, Irvine Commencement](https://commencement.uci.edu/files/2020%20Program%20V11-web.pdf)
+
 ![2475A2A6-7D35-4203-80D0-46251121F32D](https://user-images.githubusercontent.com/19508013/197358978-06c13b09-4a1f-4092-b9f0-4018ca5bfcf3.JPG)
 
 ![182675040-750d4d80-0c83-46f6-86c4-e916f8774ee5](https://user-images.githubusercontent.com/19508013/217887619-c0962bad-4473-47bc-86d4-a81d891f9eba.jpg)
